@@ -1,1 +1,1 @@
-realize except half shoe do basic tail lips explain leather obtain globe to town contrast
+cool unusual young twelve farmer limited listen clearly traffic alive fast design contain pound step
