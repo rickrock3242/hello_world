@@ -1,1 +1,1 @@
-traffic scene paint tight spread east quite market stop electricity power compare travel gate out
+eight heard stand subject equally account amount save written earn bet broken note separate about
