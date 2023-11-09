@@ -1,1 +1,1 @@
-stuck lead telephone simple fourth mine garden guess inside lamp left perfectly shinning rapidly however
+differ red straw animal lady hang distant deeply struck slightly tight dangerous great minute widely
