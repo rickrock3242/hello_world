@@ -1,1 +1,1 @@
-start east taught sold soon chart flew can chemical sharp actually sets reader anyway struck
+heading take winter cloud skin iron decide dust expect coal eye learn frozen drove warn
