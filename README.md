@@ -1,1 +1,1 @@
-such bet available got white energy city were poetry usually lake tank hand dinner bound
+deal whatever wonder write mission motor shop swimming afraid tool mirror queen even teacher born
