@@ -1,1 +1,1 @@
-deal whatever wonder write mission motor shop swimming afraid tool mirror queen even teacher born
+speech exchange anything hand than hole statement captured fifty between nuts block close process wheel
