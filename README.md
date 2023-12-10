@@ -1,1 +1,1 @@
-collect catch adventure minute date size comfortable four constantly spread thumb future beginning folks sad
+influence laugh battle solid like man each good how red worker mighty creature count reason
