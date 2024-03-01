@@ -1,11 +1,11 @@
 {
 	"name": "helloworldnyd",
-	"version": "3.2.21",
+	"version": "3.2.22",
 	 "author": "rickrock3242",
 	"license": "ISC",
 	"repository": {
 	      	"type": "git",
-	    	"url": "git+https://github.com/rickrock3242/hello_world.git"
+	    	"url": "https://github.com/rickrock3242/hello_world.git"
 	},
 	"scripts": {
 		"dev": "vite dev",
