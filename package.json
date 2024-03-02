@@ -1,6 +1,6 @@
 {
 	"name": "helloworldnyd",
-	"version": "3.2.22",
+	"version": "3.2.23",
 	 "author": "rickrock3242",
 	"license": "ISC",
 	"repository": {
@@ -26,6 +26,8 @@
 	},
 	"type": "module",
 	"dependencies": {
+		"fixario": "^0.0.1",
+		"svelte-tea": "^1.5.1",
 		"better-sqlite3": "^8.5.0",
 		"postcss": "^8.4.27",
 		"svelte": "^4.0.5",
