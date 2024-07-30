@@ -1,1 +1,1 @@
-locate engine consonant larger border fox think rear upper fruit recently magic mood cup castle
+present create each climate necessary wish win attempt bat factory trap stranger income farmer alike
