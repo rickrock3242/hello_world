@@ -1,1 +1,1 @@
-present create each climate necessary wish win attempt bat factory trap stranger income farmer alike
+court world outside sweet want air arrangement told enough model depend nearer car combination source
